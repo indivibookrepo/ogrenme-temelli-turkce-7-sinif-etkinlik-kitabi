@@ -1,0 +1,1 @@
+# ogrenme-temelli-turkce-7-sinif-etkinlik-kitabi
